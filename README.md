@@ -1,2 +1,2 @@
 # Dodeedoo.github.io
-kool
+I store stuff here, stop snoopin
